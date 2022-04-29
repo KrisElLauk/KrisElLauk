@@ -1,4 +1,4 @@
-### Hi there 👋 My name is Kristaps Eliass Laukmanis.
+### Hi 👋 I am Kristaps Eliass Laukmanis.
 
 LinkedIn: https://www.linkedin.com/in/kristapslaukmanis/
 
